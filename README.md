@@ -1,3 +1,11 @@
-[![Welcome](https://i.imgur.com/hAr807k.png)]()[![Discord Presence](https://lanyard-badge.vercel.app/api/422274807732633604?hideBadges&hideDiscrim)](https://discord.gg/CKNAftY)[![Twitch](https://i.imgur.com/MWBvLAs.png)](https://twitch.tv/hexalitylp)[![YouTube](https://i.imgur.com/r9usCwO.png)](https://youtube.com/hexality)[![Twitter](https://i.imgur.com/I7BvC5P.png)](https://twitter.com/HexalityM)[![Github](https://i.imgur.com/I3qhCkL.png)](https://github.com/hexality)
-
-<!--[![Signature](http://lemmmy.pw/osusig/sig.php?colour=hexffffff&uname=-%20Hexality%20-&removeavmargin&darkheader&onlineindicator=undefined&xpbar&xpbarhex)](https://osu.ppy.sh/users/9363161)-->
+![Frame 1](https://github.com/Hexality/hexality/assets/17398632/6f5437fa-dd9a-4379-babd-7d4a7d10b45e)
+![Frame 2](https://github.com/Hexality/hexality/assets/17398632/27c6dd73-1342-46e6-b4db-389114d218e0)
+![Frame 3](https://github.com/Hexality/hexality/assets/17398632/9ad2c5fd-80db-422a-a467-2e796fd11b90)
+![Frame 4](https://github.com/Hexality/hexality/assets/17398632/d650132e-679f-402c-8b51-597a7a119742)
+![Frame 5](https://github.com/Hexality/hexality/assets/17398632/dec05c25-65f9-47f6-acbe-1eb9c3b7b4a1)
+![Frame 6](https://github.com/Hexality/hexality/assets/17398632/c18c0a19-1d08-4bd0-ad8f-5d747610b723)
+![Frame 7](https://github.com/Hexality/hexality/assets/17398632/c96d8c26-e485-4ce3-91e7-761f13346d1d)
+![Frame 8](https://github.com/Hexality/hexality/assets/17398632/b9c911a2-012a-4137-95ac-b5137b2b267b)
+![Frame 9](https://github.com/Hexality/hexality/assets/17398632/30f4642d-1867-4c44-9885-3fff847b62d9)
+![Frame 10](https://github.com/Hexality/hexality/assets/17398632/0828f370-efea-488d-8424-7b7d169b96c7)
+![Frame 11](https://github.com/Hexality/hexality/assets/17398632/5b17f953-cdde-4ab5-97aa-93d2e86bc33b)
